@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @walter17
 - 👀 I’m interested in anything software under the sun!
-- 🌱 I’m currently learning blockchain technologies.
+- 🌱 I’m currently engaged with blockchain technologies.
 - 💞️ I’m looking to collaborate on new trends...
 - 📫 You can reach me via email: johnwalterramos17@gmail.com
 
